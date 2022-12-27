@@ -1,1 +1,0 @@
-# kamilgierzkiewicz.github.io
